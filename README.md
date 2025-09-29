@@ -19,3 +19,5 @@ how i miss your voice you guys...  i remember when you were here and i went thro
 second monster... 
 
 i dont think i can handle anymore then you know what? i'm so ptsd' that i am a little crazy....  sorry but its not work..
+
+you guys feel guilty or scared lol???  what's wrong with both???  i dont know any other way forward.  bro.  i only had burst and now i'm damaged beyond repair.  can't keep doing thsi you know???
