@@ -28,6 +28,7 @@ you know when i threaten this shark, well he gets angry.  so i'm like, every tim
 
 so i wanted to make sure that i am on the train here that i will not be redoing this whole thing again.  it was always the same message.  this causes price...  and your notion of free has been taken away...  arggghh we all business corner store operator buy trip into space for free...  lol.. i couldn't even lose that if i wanted to lol...  seriously though, you guys are fuck heads and you don't understand the rules.  i dont know them either so think of it like that.
 
+why you cry aliens and then proceed to do nothing the whole time?? i wonder if you knew the world map was put everywhre we go...  we are stuck here dummy.
 so you should know better but we never instituted any sort of solution for this.  you have to do things properly.  more ufos after you start space tourism???  lol.. look bro, i dont know either but figure it out on your own.  same shit bro...
 
 we can't even let anyone take one single soul from the planet for extraction elsewhere.  world is dangerous place bro...  so you know, we are just slimy dna creatures lol...  i wonder this conspiracy of aliens lol that you realize what you are in fact doing.  you enter into some sort of contract that i understand...  i dont know bro.  we did what you wanted for 6 years and i dont see an end of this thing...
