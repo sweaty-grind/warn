@@ -21,3 +21,9 @@ second monster...
 i dont think i can handle anymore then you know what? i'm so ptsd' that i am a little crazy....  sorry but its not work..
 
 you guys feel guilty or scared lol???  what's wrong with both???  i dont know any other way forward.  bro.  i only had burst and now i'm damaged beyond repair.  can't keep doing thsi you know???
+
+sooo i can't handle this anymore bro...  what does that even mean??? why you so goal oriented that you forgot you could do nothing anyways.  it helps if you knew the difference between one thing and another and all you want is wavelengths.. i fear this may hit my 43 year..  sharkey is a cunt bro...
+
+you know when i threaten this shark, well he gets angry.  so i'm like, every time this numb nut gets offended and we will never hear the end of it.  so its like that... i wonder though bro, what you are thinking you are doing here?? for real this is for ptsd??  bro... its another day in my life.  that i do nothing lol...
+
+so i wanted to make sure that i am on the train here that i will not be redoing this whole thing again.  it was always the same message.  this causes price...  and your notion of free has been taken away...  arggghh we all business corner store operator buy trip into space for free...  lol.. i couldn't even lose that if i wanted to lol...  seriously though, you guys are fuck heads and you don't understand the rules.  i dont know them either so think of it like that.
